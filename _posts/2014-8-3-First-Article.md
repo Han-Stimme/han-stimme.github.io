@@ -11,5 +11,4 @@ Hopefully, things will go more smoothly later.
 
 If you wish to contact me, please feel free to send email to windzhaohan@gmail.com or leave a message below.
 
-Han at Stuttgart
-3.8.2014
+Han
